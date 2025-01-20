@@ -2,7 +2,7 @@
 - 👀 I’m interested in writing code and help you)
 - 🌱 I’m currently learning help
 - 💞️ I’m looking to collaborate on writing some code's
-- 📫 How to reach me tg:@Dnt3zzz
+- 📫 How to reach me tg:@D4nt3zzz
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am so sporty)
 
